@@ -8,4 +8,3 @@
 - 📫 How to reach me: rodrigo.sauda@hotmail.com
 - 😄 Pronouns: []
 - ⚡ Fun fact: []
--->
